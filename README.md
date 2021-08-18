@@ -1,4 +1,5 @@
 # groupe3
 
 bonjour à tous.
-soirée disco avec mmasque
+soirée disco avec masque
+je suis present
